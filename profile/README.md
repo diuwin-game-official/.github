@@ -10,10 +10,14 @@ Diu Win is a popular platform known for offering free bonuses to both new and ex
 
 If you haven’t signed up yet, now’s the perfect time to join!  
 
-👉 **[Register on Diuwin Game](https://www.sikkim11.com/#/register?invitationCode=316164149930)**  
+👉 **[Register on Diuwin Game](https://www.sikkim11.com/#/register?invitationCode=316164149930)**
+
 👉 **[Register on Diuwin Game](https://www.sikkim11.com/#/register?invitationCode=316164149930)** 
+
 👉 **[Register on Diuwin Game](https://www.sikkim11.com/#/register?invitationCode=316164149930)** 
+
 👉 **[Register on Diuwin Game](https://www.sikkim11.com/#/register?invitationCode=316164149930)** 
+
 
 ## Register on Diuwin Game  
 ## Login on Diuwin Game  
